@@ -5,6 +5,7 @@
  - **1.5 oz** mango habanero whiskey
  - **1.5 oz** tequila - whatever you got (blanco 100% blue agave preferable)
  - **3.5 oz** margarita mix.
+ 
  Shake with ice & pour into pint glass with ice
  
  
@@ -27,4 +28,4 @@ This is one I found online, pretty standard and you can use basic ingredients fo
 - **1/2 oz** orgeat
 - **1/2 oz** dark rum
 
-Mix all ingredients **besides** the dark rum in a cocktail shaker with crushed ice. Strain into a whiskey glass. Top the drink with the dark rum.
+Mix all ingredients **besides** the dark rum in a cocktail shaker with crushed ice. Strain into a whiskey glass. Top the drink with the dark rum (the dark rum floats on the top)
