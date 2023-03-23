@@ -17,6 +17,7 @@
  - **0.75oz** orange curaçao
  - **0.75-1oz** (depending on preference) freshly squeezed lime juice
  - **0.5oz** orgeat syrup
+ - **0.5oz** rich simple syrup
 
 Mix all ingredients in a cocktail shaker with ice. Strain into a double whiskey glass, and top with crushed ice.
 
